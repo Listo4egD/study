@@ -1,2 +1,0 @@
-# study
-For a learning
